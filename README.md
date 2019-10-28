@@ -2,7 +2,11 @@
 
 Dokumentasi kajian Ustadz Rifky Ja'far Thalib di Masjid Namira Lamongan.
 
-## Daftar Isi
+#### Empat Pembagian Rezeki
+
+Kajian dilaksanakan pada tanggal 28 Safar 1440 / 27 Oktober 2019.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-rifky-jafar-thalib/raw/master/empat_pembagian_rezeki.MP3)
 
 #### Amalan-Amalan di Bulan Ramadhan
 
