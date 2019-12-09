@@ -2,6 +2,12 @@
 
 Dokumentasi kajian Ustadz Rifky Ja'far Thalib di Masjid Namira Lamongan.
 
+#### Membahagiakan Sesama Muslim
+
+Kajian dilaksanakan pada tanggal 10 Rabiul Akhir 1441 / 6 Desember 2019.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-rifky-jafar-thalib/raw/master/membahagiakan_sesama_muslim.MP3)
+
 #### Empat Pembagian Rezeki
 
 Kajian dilaksanakan pada tanggal 28 Safar 1440 / 27 Oktober 2019.
